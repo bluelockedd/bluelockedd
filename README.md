@@ -1,3 +1,3 @@
-<div align="center">
-    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled264_20260719003119.png" width="2000" />  
+<div align="left">
+    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled274_20260721194803.png" width="500" />  
 https://reochansdoodles.straw.page
